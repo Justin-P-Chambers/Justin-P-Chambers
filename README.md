@@ -1,6 +1,10 @@
 # Justin Chambers, About Me
 
 ## Professional Experience
+  ◊ Data Analyst, _Kumamoto Volters (Japanese B.League x Syracuse University)_
+
+  ◊ Business Strategy & Analytics Intern, _D.C. United_
+
   ◊ Development Assistant, _Wake Forest University Athletics_
   
   ◊ Event & Facility Operations Intern, _Wake Forest University Athletics_
