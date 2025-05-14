@@ -17,7 +17,7 @@
 ## Educational Background
   ◊ Bachelor of Science in Business Analytics & Sport Management, _Syracuse University (2022 Graduate)_
 
-  ◊ Master of Science in Sport Analytics, _Syracuse University (Current Student, 2025 Expected Graduation)_
+  ◊ Master of Science in Sport Analytics, _Syracuse University (2025 Graduate)_
 
 ## Supplementary Material
   ◊ LinkedIn: `https://www.linkedin.com/in/justin-p-chambers/`
